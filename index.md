@@ -11,3 +11,5 @@ De momento, estamos buscando sitio al aire libre para impartirlas. Ahora mismo s
 
 Cuando vayan a comenzar, no te preocupes que aquí mismo publicaremos la fecha con una cierta anticipación.
 
+Antes de la pandemia no era necesario acudir en pareja, porque cambiábamos de pareja cada pocos minutos. Ni idea de si se podrá seguir así cuando todo esto acabe.
+
