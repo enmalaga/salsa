@@ -4,7 +4,7 @@ Clases de salsa en Málaga
 
 Comenzamos cuando acabe la pandemia. 
 
-De momento, estamos buscando sitio al aire libre para impartirlas. Ahora mismo sería de irresponsables ponerse a bailar en un sitio cerrado, además de estar prohibido.
+De momento, estamos buscando sitio al aire libre para impartirlas. Ahora mismo sería de irresponsables ponerse a bailar en un sitio cerrado, además de estar prohibido. Para cuando se pueda bailar en lugares cerrados y ya no haya restricciones, volveremos a nuestros dos sitios habituales por la zona de la carretera de Cádiz.
 
 
 <img src="https://sites.google.com/site/clasesdesalsaenmalaga/horario-clases-salsa-bachata-malaga.gif">
