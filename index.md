@@ -13,3 +13,5 @@ Cuando vayan a comenzar, no te preocupes que aquí mismo publicaremos la fecha c
 
 Antes de la pandemia no era necesario acudir en pareja, porque cambiábamos de pareja cada pocos minutos. Ni idea de si se podrá seguir así cuando todo esto acabe, aunque imagino que sí.
 
+Teléfono. No publico mi móvil, porque paso de hablar por teléfono. Prefiero el correo electrónico, aunque tampoco es necesario que me escribas para avisar que vas a venir a clase, cuando haya clase que de momento no hay.
+
