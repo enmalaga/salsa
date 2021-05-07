@@ -7,7 +7,7 @@ Comenzamos cuando acabe la pandemia, no cuando acabe el toque de queda (que los 
 De momento, estamos buscando sitio al aire libre para impartirlas. Ahora mismo sería de irresponsables ponerse a bailar en un sitio cerrado, además de estar prohibido. Para cuando se pueda bailar en lugares cerrados y ya no haya restricciones, volveremos a nuestros dos sitios habituales por la zona de la carretera de Cádiz.
 
 
-<img src="https://www.clasesdesalsaenmalaga.com/horario-clases-salsa-bachata-malaga.gif">
+<img src="http://www.clasesdesalsaenmalaga.com/horario-clases-salsa-bachata-malaga.gif">
 
 Cuando vayan a comenzar, no te preocupes que aquí mismo publicaremos la fecha con una cierta anticipación.
 
