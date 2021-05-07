@@ -15,3 +15,5 @@ Antes de la pandemia no era necesario acudir en pareja, porque cambiábamos de p
 
 Teléfono. No publico mi móvil, porque paso de hablar por teléfono. Prefiero el correo electrónico, aunque tampoco es necesario que me escribas para avisar que vas a venir a clase, cuando haya clase que de momento no hay.
 
+<img src="https://github.com/enmalaga/salsa/blob/gh-pages/horario-clases-salsa-bachata-malaga.gif">
+
