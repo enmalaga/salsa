@@ -17,5 +17,7 @@ CLASES PARTICULARES. No hay. Son aburridas. Se pasa mucho mejor bailando en grup
 
 TELÉFONO. No publico mi móvil, porque paso de hablar por teléfono. Prefiero el correo electrónico, aunque tampoco es necesario que me escribas para avisar que vas a venir a clase cuando haya clase, que de momento no hay.
 
+CONTACTO: <img src="https://github.com/enmalaga/salsa/blob/gh-pages/salsaenmalaga-icon-correo.png">
+
 
 
