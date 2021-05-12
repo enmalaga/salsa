@@ -13,9 +13,9 @@ Cuando vayan a comenzar, no te preocupes que aquí mismo publicaremos la fecha c
 
 CLASES DE SALSA ONLINE. No impartimos clases online de salsa, porque con cualquier tutorial gratis de esos que hay miles en youtube, vas a aprender lo mismo: nada. Es con las clases presenciales y se tarda su tiempo en aprender a bailar...
 
-CLASES PARTICULARES. No hay. Son aburridas. Se pasa mucho mejor bailando en grupo. No, no impartimos clases particulares ni vamos a hacer excepciones. No hay clases particulares.
+CLASES PARTICULARES. No hay. Son aburridas. Se pasa mucho mejor bailando en grupo, y nosotros bailamos para divertirnos, no por dinero. No, no impartimos clases particulares ni vamos a hacer excepciones. No hay clases particulares, pero nada te impide acudir a las clases colectivas cuando las haya.
 
-TELÉFONO. No publico mi móvil, porque paso de hablar por teléfono. Prefiero el correo electrónico, aunque tampoco es necesario que me escribas para avisar que vas a venir a clase, cuando haya clase que de momento no hay.
+TELÉFONO. No publico mi móvil, porque paso de hablar por teléfono. Prefiero el correo electrónico, aunque tampoco es necesario que me escribas para avisar que vas a venir a clase cuando haya clase, que de momento no hay.
 
 
 
