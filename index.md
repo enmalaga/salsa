@@ -2,8 +2,7 @@ Clases de salsa en Málaga
 
 # Clases de salsa en Málaga 
 
-¿CUANDO? Comenzamos nuevo grupo siempre a primeros de mes en nuestro horario habitual, de 9 a 11 de la noche. No, no vamos a poner otro horario. Sólo ese.
-Cuando vayan a comenzar, no te preocupes que aquí mismo publicaremos la fecha con una cierta anticipación.
+¿CUANDO? Comenzamos nuevo grupo siempre a primeros de mes en nuestro horario habitual, de 9 a 11 de la noche. No, no vamos a poner otro horario. Sólo ese. Cuando vayan a comenzar nuevos grupos, no te preocupes que aquí mismo publicaremos la fecha con una cierta anticipación.
 
 ¿DÓNDE? De momento, estamos en nuestros sitios habituales por la zona de la carretera de Cádiz.
 
